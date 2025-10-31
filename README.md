@@ -17,7 +17,7 @@
     <br><br>
     - ⚡ Fun fact: I am still confused what i want to do. XD
     <br><br>
-    - 📫 How to reach me: [email or social link]
+    - 📫 How to reach me: yashrajtilwani73099@gmail.com
     <br><br>
   </samp>
 </p>
